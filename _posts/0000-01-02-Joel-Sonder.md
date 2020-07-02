@@ -1,1 +1,5 @@
-
+"Los músicos de Bremen"
+"Un burro maltratado que iba a ser sacrificado por ser viejo decide escapar y se dirige a vivir como músico callejero en Bremen. Por el camino va encontrando sucesivamente a un"
+"perro, un gato y un gallo que han huido de sus casas en situaciones parecidas, y todos se van uniendo al grupo con la intención de crear un conjunto musical. Al caer la noche,"
+"los animales ven la luz de una casa y al acercarse descubren que es la guarida de unos ladrones, a quienes asustan haciéndoles creer que son un fantasma, subiéndose unos encima"
+"de otros y cantando todos a la vez. Después de que el grupo cena y se echa a dormir, uno de los ladrones regresa, pero al ser atacado por todos los animales a la vez, huye" "despavorido creyendo que allí viven brujas y más seres peligrosos. Y los animales, felices, se quedaron a vivir en la casa."
